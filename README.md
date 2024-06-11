@@ -6,4 +6,4 @@ Cursando programação
 Para entrar em contato comigo 
 00001095234626sp@al.educacao.sp.gov.br
 
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.deviantart.com%2Fpedronavarri19%2Fart%2FMLG-Minecraft-858024373&psig=AOvVaw2oaLmN8otFz_YLiMYuLwfL&ust=1718211951831000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCODpr7yE1IYDFQAAAAAdAAAAABAJ](link)
+![https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9aaacce7-22b7-400a-82b6-f423c44b8b99/de6ufud-e6eed2f4-f868-4d4f-804f-97ed3028504a.jpg/v1/fill/w_1280,h_720,q_75,strp/mlg_minecraft_by_pedronavarri19_de6ufud-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NzIwIiwicGF0aCI6IlwvZlwvOWFhYWNjZTctMjJiNy00MDBhLTgyYjYtZjQyM2M0NGI4Yjk5XC9kZTZ1ZnVkLWU2ZWVkMmY0LWY4NjgtNGQ0Zi04MDRmLTk3ZWQzMDI4NTA0YS5qcGciLCJ3aWR0aCI6Ijw9MTI4MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Duwx4Z5untw8V5AdXVId_vUxQp-HHagPCgQgr6mxv3g](link)
